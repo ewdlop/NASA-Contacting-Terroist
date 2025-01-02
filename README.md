@@ -7,3 +7,11 @@ Should be sent.
 I am taunting them with ~Alagon is Dead~.
 
 Alagon went to wrong house for vacation.
+
+Alagon is a good bad that is dead 
+
+and I dont like rely on Good guy
+
+and some might want alagon death cuz it represnets we need helps
+
+Cuz we killed Alagon
