@@ -7,3 +7,5 @@ Should be sent.
 I am taunting them with ~Alagon is Dead~.
 
 Alagon went to wrong house for vacation.
+
+Copper: did you said I love your daughter?
