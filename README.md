@@ -7,3 +7,9 @@ Should be sent.
 I am taunting them with ~Alagon is Dead~.
 
 Alagon went to wrong house for vacation.
+
+DAMN algalon YOU SENT I AM DEAD TO VOID LORDS!?
+
+IT WAS ORIGNALLY INTEND TO SEND PATHEON ANOTHER MESSAGE SAYING CONFIRMATION OF planetary defense reorginzation
+
+Goblin we crc corect it to boooooooooooooooooooooooooooooooooom
